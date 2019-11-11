@@ -1,0 +1,2 @@
+# traine
+Cara belajar
